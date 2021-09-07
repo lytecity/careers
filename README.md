@@ -1,0 +1,2 @@
+# careers
+We're hiring!
